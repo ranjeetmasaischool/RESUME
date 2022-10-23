@@ -1,3 +1,3 @@
 # RESUME
-  Ranjeet Kumar 
+RANJEET 
 
