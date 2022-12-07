@@ -1,2 +1,2 @@
 # RESUME
-Ranjeet Kumar 
+Ranjeet
